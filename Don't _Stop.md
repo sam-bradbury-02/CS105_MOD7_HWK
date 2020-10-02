@@ -36,4 +36,4 @@ Hold on
 Streetlights, people
 Don't stop believin'
 Hold on to the feelin'
-Streetlights, peoplw
+Streetlights, people
